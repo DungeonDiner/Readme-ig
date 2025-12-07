@@ -17,5 +17,5 @@ gachiatuka, dandadan, skullgirls, one piece, land of lustrous, sweet tooth, deli
 
 
 <p align="middle">
-<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> 
+<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> im always offtab so like w21
 
