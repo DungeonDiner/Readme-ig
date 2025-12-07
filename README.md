@@ -1,14 +1,21 @@
-![](https://komarev.com/ghpvc/?username=mirage-tempo&color=740000&label=:3)
+![](https://komarev.com/ghpvc/?username=mirage-tempo&color=D8CBB0&label=>w<)
 
 <p align="center">
-    <img width="900" src=https://i.postimg.cc/dt0X6fZX/Untitled627-20251112195720.png>
+    <img width="900" src=https://i.postimg.cc/MTY2J9hs/3bc85c51619c8aa802ea63a4be784e5f.jpg>
 </p>
 
 <p align="center">
-links  <img width="60" src=https://i.postimg.cc/Dyvzf7J9/Untitled621-20251113214756.png >
+  <img width="70" src=https://i.postimg.cc/qvHPgV4t/Untitled659-20251207230559.png >
 <p align="center">
-  <a href=https://luffyswifes.straw.page>strawpage</a> <img width="18" src=https://i.postimg.cc/HnsCmsZ3/Untitled621-20251113214906.png> <a href=https://luffys.atabook.org/>atabook</a> <img width="18" src="https://i.postimg.cc/Dyvzf7J9/Untitled621-20251113214756.png"> <a href=>rentry</a>
+  <a 
+ <p align="side">
+  <img width="50" src=https://i.postimg.cc/t4SF26DW/Untitled659-20251207232059.png> zoul/chu 🍀  🇵🇭🏳️‍⚧️  °       ` 
 
 
-<p align="center">
-<img width="30" src=https://i.postimg.cc/kg3HCgp7/Untitled627-20251112220325.png> no DNI list 𝜗ৎ c+h is ok!! <img width="20" src=https://i.postimg.cc/DfsG4fw9/Untitled623-20251112143137.png 
+<p align="center">my interest 
+gachiatuka, dandadan, skullgirls, one piece, land of lustrous, sweet tooth, delicious in dungeon, my dress-up darling,scissors seven
+
+
+<p align="middle">
+<img width="30" src=https://i.postimg.cc/MH11Zr7W/Untitled659-20251207233452.png> 
+
